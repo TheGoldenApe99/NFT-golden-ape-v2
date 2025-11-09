@@ -1,1 +1,0 @@
-# NFT-golden-ape-v2
